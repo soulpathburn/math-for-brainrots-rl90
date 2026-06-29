@@ -1,4 +1,4 @@
-#  
+#  math for brainrots Script underground offers the most advanced math for brainrots Script, with auto-sell and instant win. Perfect for dominating any
 
 
 
